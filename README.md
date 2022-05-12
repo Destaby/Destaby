@@ -1,0 +1,4 @@
+- 🎓 Student: KPI
+- 🧑‍💻 Languages: JavaScript
+- 💬 Telegram: @destaby
+- 📫 rudik.nick.nick@gmail.com
